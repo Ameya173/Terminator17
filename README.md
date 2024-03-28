@@ -1,2 +1,2 @@
 # Terminator17
-just learned a new technique of animation 
+Just learned a new technique of animation .
